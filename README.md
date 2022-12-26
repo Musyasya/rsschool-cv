@@ -1,1 +1,1 @@
-https://musyasya.github.io/rsschool-cv/cv
+https://ShitikovaAnastasiia.github.io/rsschool-cv/cv
